@@ -1,5 +1,5 @@
 # 💫 About Me:
-Aspiring Game Developer studying at UCT 🎮💻
+Aspiring Software Engineer studying at UCT 🎮💻
 
 
 ## 🌐 Socials:
